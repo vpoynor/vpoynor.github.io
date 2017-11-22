@@ -1,1 +1,0 @@
-# vpoynor.github.io
